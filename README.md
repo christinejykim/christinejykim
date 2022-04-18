@@ -1,4 +1,4 @@
-### Cultural Anthropologist, Comic Artist, and Trilingual Traveler 👋
+### Cultural Anthropologist, Comic Artist, and Trilingual Translator 👋
 
 <!--
 **christinejykim/christinejykim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
